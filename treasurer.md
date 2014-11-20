@@ -1,4 +1,4 @@
-## Treasurer appointment 2014-11-11
+## Treasurer Appointment 2014-11-11
 
 ### Members witnessing document's creation / signing
 
